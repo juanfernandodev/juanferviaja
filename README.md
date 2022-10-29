@@ -1,4 +1,4 @@
-# Here goes a little information about me 👋
+# Here is a little information about me 👋
 
 ## Who am I?
 
