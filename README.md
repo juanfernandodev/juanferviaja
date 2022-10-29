@@ -11,24 +11,16 @@ I also like reading books about bighraphies 📚, playing chess ♟️ and monop
 
 ## My Social Networkings
 
-- [Linkedin](https://www.linkedin.com/in/iamfernandoromero/)<br />
-- [Twitter](https://twitter.com/fernanxd17)<br />
-- [Instagram](https://www.instagram.com/fernanxd_17/)<br />
-- [Facebook](https://www.facebook.com/fernanxd17/)<br />
+- [Linkedin](https://www.linkedin.com/in/juanferviaja/)<br />
+- [Twitter](https://twitter.com/juanferviaja)<br />
+- [Instagram](https://www.instagram.com/juanferviaja/)<br />
+- [Facebook](https://www.facebook.com/juanferviaja/)<br />
 - A blog coming soon.<br />
 
 ## What did/do I do?
 
-I try to put order in my life ✍️.<br />
-I founded [Dream Ti Colombia](instagram.com/dreamticol/), an account for show to world the Colombia's beautiful.<br />
-I created the Academic Social Networking [Joinus](https://cutt.ly/ZKd9LBs) with my partner @PaolaBird 👩‍❤️‍👨.<br />
-I'm working like Architect developer in Ceiba Software SAS.<br />
-I'm currently learning english 🇺🇸🇨🇦.<br />
-
-## What are my skills?
-
-I developing mobile application with Android & Kotlin<br />
-I like to build software web with Angular.<br />
-In Backend I like Python.<br />
-I'm Develop Full Stack<br />
-
+Trying to put my life in order ✍️.<br />
+Currently learning english 🇺🇸🇨🇦.<br />
+Working as a Architect developer at Ceiba Software SAS.<br />
+My girlfriend @PaolaBird and me create 👩‍❤️‍👨 [Dream Ti Colombia](instagram.com/dreamticol/), an account for show to world the Colombia's beautiful.<br />
+Also we create the Academic Social Networking [Joinus](https://cutt.ly/ZKd9LBs).<br />
