@@ -1,8 +1,13 @@
 # Here is a little information about me 👋
 
-## Who am I?
+🙋‍♂️ My name is Juan Fernando Romero Ortega I'm a curious person 🧐, when something catches my attention I like to have a big vision of the things that surround me. My attitude for discovery have made me a person who tries to reduce what is unknown 😃.
 
-🙋‍♂️ My name is Juan Fernando Romero Ortega.<br />
+I like having hobbies that enrich me personally and professionally: traveling helps me to explore new places and cultures🌎 , riding a bike makes me a tourist in my own city 🚴, reading books helps my creativity and imagination 📚, and software development allows me to be up to date. forefront of new technologies 🧑‍.
+
+I like challenges because they challenge my limits and my abilities: from the new I get a lot of learning and it makes me a more complete person personally and professionally 💯.
+
+## More about me 🙋‍♂️:
+
 I was born on January 17, 1997 in my beloved [Cúcuta](https://en.wikipedia.org/wiki/C%C3%BAcuta)🏴🚩, [Norte de Santander](https://en.wikipedia.org/wiki/Norte_de_Santander_Department)🚩🏴, [Colombia](https://en.wikipedia.org/wiki/Colombia) 🇨🇴.<br />
 I'm Systems Engineer 🧑‍💻 by [UFPS](https://www.facebook.com/Ufps.edu.co). There I obtained a laureate thesis 👨‍🎓.<br />
 I like the deport, like ride ciclyng 🚴🏻‍♂️, play fotball ⚽️; I love to Real Madrid FC.<br />
