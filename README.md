@@ -2,7 +2,7 @@
 
 🙋‍♂️ My name is Juan Fernando Romero Ortega I'm a curious person 🧐, when something catches my attention I like to have a big vision of the things that surround me. My attitude for discovery have made me a person who tries to reduce what is unknown 😃.
 
-I like having hobbies that enrich me personally and professionally: traveling helps me to explore new places and cultures🌎 , riding a bike makes me a tourist in my own city 🚴, reading books helps my creativity and imagination 📚, and software development allows me to be up to date. forefront of new technologies 🧑‍.
+I like having hobbies that enrich me personally and professionally: traveling helps me to explore new places and cultures🌎 , riding a bike makes me a tourist in my own city 🚴, reading books helps my creativity and imagination 📚, and software development allows me to be at the forefront of new technologies 🧑‍.
 
 I like challenges because they challenge my limits and my abilities: from the new I get a lot of learning and it makes me a more complete person personally and professionally 💯.
 
